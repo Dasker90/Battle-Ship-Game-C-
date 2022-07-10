@@ -1,4 +1,4 @@
-Damian Skuras Zaawansowane Technologie Programowania 
+Damian Skuras Zaawansowane Technologie Programowania |
 
 
 
